@@ -1,4 +1,4 @@
-#  
+#  exclusive Script for adopt me is the best adopt me Script, featuring auto-collect and unlimited stamina. Safe and powerful for all your needs.
 
 
 
